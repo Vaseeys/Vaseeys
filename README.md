@@ -1,16 +1,12 @@
-## Hi there 👋
+## Welcome, Gentlemen & m'Employers
+ I am Vasee🍂
+🎓Pursing Electrical engineering &
+🔌 VLSI Design & Technology 
+🖥️ Learning Game development for fun 
+🎈 I educational and videos game on yt #
+https://m.youtube.com/channel/@vaseeys_rando
+🎨I post my artworks & edits # https://www.instagram.com/vasee_karan4/
+🌺 Freelanceing Video editing, Artwork & Cloth designs 
 
-<!--
-**Vaseeys/Vaseeys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+     
