@@ -6,10 +6,10 @@
 🖥️ Learning Game development for fun 
 
 🎈 I post educational and video games  on <yt>
-# https://m.youtube.com/channel/@vaseeys_rando
+# https://m.youtube.com/channel/@vedantrix_4/
 
 🎨I post my artworks & edits <Instagram>
-# https://www.instagram.com/vasee_karan4/
+# https://www.instagram.com/vedantrix.artz/
 
 👕 Freelanceing Video editing, Artwork & Cloth designs 
 
